@@ -1,1 +1,1 @@
-https://necrozyph182.sup.com/keysys/
+eysys69420.chr1s.co
