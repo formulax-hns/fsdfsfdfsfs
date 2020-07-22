@@ -1,1 +1,1 @@
-eysys69420.chr1s.co
+formulax-hns.github.io/keysys/
