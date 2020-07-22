@@ -1,1 +1,1 @@
-https://necrozyph12821827198.sup.com/keysys/
+https://necrozyph182.sup.com/keysys/
