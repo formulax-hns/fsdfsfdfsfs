@@ -1,2 +1,2 @@
-https://formulax-hns.github.io/getkey1EWFSFJEWJ
+https://formulax-hns.github.io/getkey1EWF
 Lol
